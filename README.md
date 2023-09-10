@@ -1,6 +1,6 @@
 ## CS648
  -**WEB DEVELOPMENT**
-## Welcome to the eBusiness Evolution: Introducing NexusWave's Agile Solutions
+## Welcome to Vecta Corp. – 24/7 365 turnkey vSolutions for your agile ebusiness
 
 ## Welcome
 
